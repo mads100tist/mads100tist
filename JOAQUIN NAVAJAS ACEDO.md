@@ -8,7 +8,7 @@
 
 
 - Postdoc - [2019-Present] Alex Schier Lab (Biozentrum, Switzerland)
-- PhD in Biology - [2013-2019] Tatjana Piotrowski (Stowers Institute for Medical Research, MO USA)
+- PhD in Biology - [2013-2019] Tatjana Piotrowski Lab (Stowers Institute for Medical Research, MO USA)
 - MSc in Genetics and Cell Biology - [2012-2013] Universidad Autónoma de Madrid, Spain
 - BSc in Biology - [2006-2012] Universidad Autónoma de Madrid, Spain
 
